@@ -1,0 +1,1 @@
+Cut the mangoes into small peices put all the mangoes peices in mixer add Milk,Roohafza and Dryfruits in mixer start the mixer wait for sometime after sometime check if it is compeletely mixed if not start mixer again until it is compeletly mixed when it is compeletly mixed pour it in glass you can decorate it with dryfruits on top of it .
